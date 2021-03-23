@@ -4,7 +4,7 @@
 
 ## Description
 
-The trail head is accessible using the Durango-Silverton narrow gauge train.  We board at 0845.  We get let off the train in Needleton at 1115.  From there it's a ~6 mile hike along Needle Creek to camp in Chicago Basin (11200 ft), just south of Twin Lakes.  It's likely that there will still be time left in the day so there is an optional trip up to columbine pass (12665 ft) to the south east.
+The trail head (8200 ft) is accessible using the Durango-Silverton narrow gauge train.  We board at 0845.  We get let off the train in Needleton at 1115.  From there it's a ~6 mile hike along Needle Creek to camp in Chicago Basin (11200 ft), just south of Twin Lakes.  It's likely that there will still be time left in the day so there is an optional trip up to columbine pass (12665 ft) to the south east.
 
 On day two we will climb up to Twin Lakes (12500 ft) and anyone not climbing to the top of Mt Eolus will be able to sit by the lakes and read a book.  Then we head west and climb up to North Eolus (14039 ft, unranked) from there we move on to Mt Eolus (14085, 33 of 53).  Then descend the way we came back to Twin Lakes and Chicago Basin.
 
