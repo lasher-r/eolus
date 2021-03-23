@@ -53,3 +53,5 @@ Marmots and mountain goats.  Marmots get into everything and will gnaw at your t
 ## Summery
 
 This is a weird one.  It's short, no day greater than 7 miles but there is a lot of elevation gain even without Mt Eolus.  To get to the trail head you need a ticket for an historic train and the opportunity to bag my first 14er is too much to resist.
+
+![Chicago](images/chicago.jpeg)
